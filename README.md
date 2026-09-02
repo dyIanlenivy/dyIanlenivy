@@ -2,15 +2,16 @@
 
 ![](https://komarev.com/ghpvc/?username=emeryrivera&color=7b6584&abbreviated=true&style=for-the-badge)
 
-![](https://static.wikia.nocookie.net/daybreakrblx/images/8/81/EmeryPerk.png/revision/latest?cb=20251127011154)
+![](https://files.catbox.moe/lsyvic.gif)
 
-![](https://64.media.tumblr.com/8cb03872d804420d1f2c24fb5471106d/a53559b838a1040c-27/s75x75_c1/832b03b4a700c5801d924f333aa94c8b3356c441.gifv) ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of sympathy."
+; "unpack the car, I'll take the keys, you're shaking the words right out of me."
 
-![](https://64.media.tumblr.com/7e72ace1e5a61967d1805526a2b01aa6/9f48f14516b0f9ba-04/s75x75_c1/c0d9994ad77e841c90a545cafe403072d7513207.gifv)
+![](https://64.media.tumblr.com/6502f9250b33b16c4c2d0ff44f88fae1/4660da83d1abf8a4-4d/s75x75_c1/9396d6eb46d28a172c9ee89363e9076314a77545.gifv)
 
-i am very very lonely, and do not have many friends. i will never be upset with someone for sitting with me... in fact i would really like that!!! um please talk to me i have such bad social anxiety i would never reach out first i'm sorry,,,
+dylan . he/him . 18
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7B6584&center=true&width=435&separator=%3C&lines=;+%22Another+vanishing+act%3Cfrom+Emery+Rivera!%22)](https://git.io/typing-svg)
+cinephile horror luvr freak, interactions + cuddles always okay
 
-<details>
-  <summary>Click 4 stamps + blinkies!</summary>
+![](https://files.catbox.moe/9wxxio.png) ![](https://files.catbox.moe/wx2fkw.png) ![](https://files.catbox.moe/ko6u6i.png)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=jim+nightshade&duration=3000&pause=500&color=E92956&center=true&width=435&lines=%22Herd+of+bears.%22;%22...yeah%2C+I've+heard+of+bears.%22)](https://git.io/typing-svg)
