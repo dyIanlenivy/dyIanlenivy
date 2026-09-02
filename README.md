@@ -10,7 +10,7 @@
 
 dylan . he/him . 18
 
-cinephile horror luvr freak, interactions + cuddles always okay
+cinephile horror luvr freak, socially awkward, you int first
 
 ![](https://files.catbox.moe/9wxxio.png) ![](https://files.catbox.moe/wx2fkw.png) ![](https://files.catbox.moe/ko6u6i.png)
 
