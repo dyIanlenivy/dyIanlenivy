@@ -6,11 +6,9 @@
 
 ![](https://64.media.tumblr.com/8cb03872d804420d1f2c24fb5471106d/a53559b838a1040c-27/s75x75_c1/832b03b4a700c5801d924f333aa94c8b3356c441.gifv) ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of sympathy."
 
-![](https://64.media.tumblr.com/7e72ace1e5a61967d1805526a2b01aa6/9f48f14516b0f9ba-04/s75x75_c1/c0d9994ad77e841c90a545cafe403072d7513207.gifv) ![](https://64.media.tumblr.com/9e20acb89de357306c3a3a6a43c40617/e5d2be417a1a67a0-7a/s75x75_c1/5b3f51c0a3fa774efe40edaf6a61ac60c98086f9.gifv) ![](https://64.media.tumblr.com/33939dc473beb29eea33941dc16108d7/f94cefb3e531a733-39/s75x75_c1/1a93f488be890b6f7e0c6fb2a826845c61388b83.gifv)
+![](https://64.media.tumblr.com/7e72ace1e5a61967d1805526a2b01aa6/9f48f14516b0f9ba-04/s75x75_c1/c0d9994ad77e841c90a545cafe403072d7513207.gifv)
 
 i am very very lonely, and do not have many friends. i will never be upset with someone for sitting with me... in fact i would really like that!!! um please talk to me i have such bad social anxiety i would never reach out first i'm sorry,,,
-
-art credits: IC, Unknown_0_SB
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7B6584&center=true&width=435&separator=%3C&lines=;+%22Another+vanishing+act%3Cfrom+Emery+Rivera!%22)](https://git.io/typing-svg)
 
