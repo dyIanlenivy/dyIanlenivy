@@ -16,4 +16,4 @@ cinephile horror luvr freak, socially awkward, you int first
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=jim+nightshade&duration=3000&pause=500&color=E92956&center=true&width=435&lines=%22Herd+of+bears.%22;%22...yeah%2C+I've+heard+of+bears.%22)](https://git.io/typing-svg)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=e92956&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
